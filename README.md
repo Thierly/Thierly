@@ -7,7 +7,7 @@
 
 - 📫 Contato: **arthurthierly@gmail.com**
 
-- 📄 LinkedIn [https://www.linkedin.com/in/arthur-thierly-freires-21142b283?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app](https://www.linkedin.com/in/arthur-thierly-freires-21142b283?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+- 📄 LinkedIn https://www.linkedin.com/in/arthur-freires-a8b657312
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
